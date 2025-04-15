@@ -1,1 +1,8 @@
-# kevin-puorro.github.io
+# Data Analyst
+
+### Education
+B.S. Statisitcs
+
+### Work Experience
+
+### Projects
